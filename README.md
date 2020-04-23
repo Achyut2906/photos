@@ -1,1 +1,3 @@
 # photos
+Hi Everyone, I am new to this platform and have no idea about anything.....
+What to do, how to do?
